@@ -11,9 +11,6 @@ I´m from Mexico and I love technology, superhero and the nature.
 - Project: Lab Notes
 
 
-💬 Ask me about programming in general, I am always available to help and learn together.
-
-
 
 ---
 ---
